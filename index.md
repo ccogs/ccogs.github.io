@@ -1,6 +1,6 @@
 # Christy Coghlan
 
-![Me!](/cc.png)
+![Me!](/cc.jpeg)
 
 ## Research
 Interests: buses, transit, maps, regular expressions, software engineering
