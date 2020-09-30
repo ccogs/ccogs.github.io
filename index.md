@@ -1,5 +1,6 @@
 # Christy Coghlan
 
+![Me!](/cc.png)
 
 ## Research
 Interests: buses, transit, maps, regular expressions, software engineering
