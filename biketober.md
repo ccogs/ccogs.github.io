@@ -6,7 +6,7 @@ To bring joy to your life by biking in extremely safe and doable ways with frien
 
 ## When
 
-The last three Saturdays in October
+The last three Saturdays in October. [RSVP here!](https://forms.gle/3okUBGpR7Ly5UsKn9)
 
 |            | Goal                                                                                               | Likely route                                                                                                                                                                                                          |
 |------------|----------------------------------------------------------------------------------------------------|-----------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------|
@@ -38,3 +38,7 @@ If desired, we can also do a special "City Biking 101" course on 19 September or
 ## Help! I'm worried I'm unfit!
 
 If you can walk ~5 miles with no problem/breaks, you can Biketober. However, I suggest focusing on slight uphill walking (12-3-30 at the gym on a treadmill) or stationary cycling throughout September to prepare.
+
+## How do I sign up?
+
+[RSVP here!](https://forms.gle/3okUBGpR7Ly5UsKn9)
