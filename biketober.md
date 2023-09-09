@@ -2,7 +2,7 @@
 
 ## What
 
-To bring joy to your life by biking in extremely safe and doable ways with friends.
+biking! in October!
 
 ## When
 
@@ -25,19 +25,19 @@ The last three Saturdays in October. [RSVP here!](https://forms.gle/3okUBGpR7Ly5
 
 ## Help! I don't have a bike!
 
-Unfortunately, you do need one. Please do not use a CitiBike. I would suggest you use a road bike or a hybrid bike and not a mountain bike. 
-
-I've been told you can rent a bike for $30/day, so you would need to spend $90 for Biketober. 
+This route goes places you can't CitiBike so I expect you'll have to rent them. I'm told renting is $50/day or $250/month, but buying is also $100-500.
 
 ## Help! I'm afraid to ride a bike in traffic!
 
-Biketober was made for you! We'll arrange an initial start point that is close to everyone's house to limit time spent biking alone. Most of the routes will be fairly car-free and you won't be expected to do anything too scary.
+Biketober was made for you! We'll arrange an initial start point that is close to everyone's house to limit time spent biking alone. Most of the routes will be fairly car-free and you won't be expected to do anything too scary. :) 
 
 If desired, we can also do a special "City Biking 101" course on 19 September or 20 September. You can use a citibike for that.
 
 ## Help! I'm worried I'm unfit!
 
-If you can walk ~5 miles with no problem/breaks, you can Biketober. However, I suggest focusing on slight uphill walking (12-3-30 at the gym on a treadmill) or stationary cycling throughout September to prepare.
+You can definitely biketober, I promise.
+
+I suggest focusing on slight uphill walking (12-3-30 at the gym on a treadmill) or stationary cycling throughout September to prepare.
 
 ## How do I sign up?
 
